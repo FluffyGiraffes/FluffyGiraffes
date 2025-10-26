@@ -1,3 +1,7 @@
+## IMPORTANT!
+
+Do not copy/take any inspo from my ponies, lore, party, and etc unless I give EXPLICIT permission! I have full rights to block you if you do this.
+
 ## Social Medias
 
 - Tumblr - https://www.tumblr.com/fluffygiraffe
